@@ -1,1 +1,0 @@
-# raqip-app
